@@ -1,5 +1,5 @@
 ## 👋Hi there 
-Hi, I'm you father
+Hi, I'm father
 ## 📫 How to reach me
 - 📧 Email: 493284461@qq.com
 - 📝 Blog:  http://blog.liph.top
