@@ -1,5 +1,5 @@
 ## 👋Hi there 
-Hi, I'm father
+Hi!I'm a student from HENU!
 ## 📫 How to reach me
 - 📧 Email: 493284461@qq.com
 - 📝 Blog:  http://blog.liph.top
