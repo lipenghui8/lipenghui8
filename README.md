@@ -1,6 +1,6 @@
 ## 👋Hi there 
 
-I am a master student in TJU, doing research about cloud computing and blockchain, integration with deep learning
+Hi! I am a master student in TJU, doing research about cloud computing and blockchain, integration with deep learning
 
 ## 📫 How to reach me
 
